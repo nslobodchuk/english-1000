@@ -17,7 +17,7 @@
 15. [in tow](https://en.oxforddictionaries.com/definition/in_tow)
 16. [litany](https://en.oxforddictionaries.com/definition/litany)
 17. [interlocutor](https://en.oxforddictionaries.com/definition/interlocutor)
-18. [self-flaggelation](https://en.oxforddictionaries.com/definition/self-flaggelation)
+18. [self-flaggelation](https://en.oxforddictionaries.com/definition/flaggelation)
 19. [lament](https://en.oxforddictionaries.com/definition/lament)
 20. [outstrip](https://en.oxforddictionaries.com/definition/outstrip)
 21. [turnstile](https://en.oxforddictionaries.com/definition/turnstile)
