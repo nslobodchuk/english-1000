@@ -53,7 +53,7 @@
 51. [prong](https://en.oxforddictionaries.com/definition/prong)
 52. [flash point](https://en.oxforddictionaries.com/definition/flash-point)
 53. [encroach](https://en.oxforddictionaries.com/definition/encroach)
-54. [incontitent](https://en.oxforddictionaries.com/definition/incontitent)
+54. [incontinent](https://en.oxforddictionaries.com/definition/incontinent)
 55. [incontinence](https://en.oxforddictionaries.com/definition/incontinence)
 56. [incomparable](https://en.oxforddictionaries.com/definition/incomparable)
 57. [onomatopoeia](https://en.oxforddictionaries.com/definition/onomatopoeia)
