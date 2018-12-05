@@ -3,6 +3,10 @@ take something in one's stride
 
 in a pinch
 
+
+whack-a-mole
+
+
 1. [conflate](https://en.oxforddictionaries.com/definition/conflate)
 2. [noisome](https://en.oxforddictionaries.com/definition/noisome)
 3. [toehold](https://en.oxforddictionaries.com/definition/toehold)
