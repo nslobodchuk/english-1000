@@ -5,6 +5,7 @@ in a pinch
 
 
 whack-a-mole
+eat crow
 
 
 1. [conflate](https://en.oxforddictionaries.com/definition/conflate)
