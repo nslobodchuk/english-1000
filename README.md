@@ -10,6 +10,8 @@ eat crow
 
 come to a head
 
+hook, line, and sinker.
+
 
 1. [conflate](https://en.oxforddictionaries.com/definition/conflate)
 2. [noisome](https://en.oxforddictionaries.com/definition/noisome)
