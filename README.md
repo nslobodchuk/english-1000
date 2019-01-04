@@ -12,6 +12,8 @@ come to a head
 
 hook, line, and sinker.
 
+Over the years, Whelan, a Marine Corps veteran, has held himself out to friends and family as a world traveler, accustomed to working closely with FBI agents and American embassy personnel.
+
 
 1. [conflate](https://en.oxforddictionaries.com/definition/conflate)
 2. [noisome](https://en.oxforddictionaries.com/definition/noisome)
